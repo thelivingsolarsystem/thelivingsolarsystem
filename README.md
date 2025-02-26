@@ -1,8 +1,11 @@
 Hello there👋🏻
 
 I’m @thelivingsolarsystem 💫👩🏼‍💻
+
 Based soewhere in the universe📍
+
 Currently relearning Python, C, web design & cybersecurity🤫
+
 Idk what I'm doing here, don't ask🤷🏼‍♀️
 💖🎬🩰📸🎀🏁
 
