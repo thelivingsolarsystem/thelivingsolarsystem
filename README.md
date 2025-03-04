@@ -2,7 +2,7 @@ Hello there👋🏻
 
 I’m @thelivingsolarsystem 💫👩🏼‍💻
 
-Based soewhere in the universe📍
+Based somewhere in the universe📍
 
 Currently relearning Python, C, web design & cybersecurity🤫
 
