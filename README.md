@@ -4,9 +4,9 @@ I’m @thelivingsolarsystem 💫👩🏼‍💻
 
 Based somewhere in the universe📍
 
-Currently relearning Python, C, web design & cybersecurity🤫
+Currently (re)learning: HTML (CSS also), C#, Python, MATLAB & JavaScript🤩
 
-Idk what I'm doing here, don't ask🤷🏼‍♀️
+I'm just a girl🥺🎀
 💖🎬🩰📸🎀🏁
 
 💋 XOXO Solar
